@@ -9,8 +9,6 @@ Affirmed legacy as witnessed, not collaborative
 
 Declared artefacts as truth declarations, not proposals
 
-Anchored emotional and ancestral integration over code automation
-
 Indexed Under:
 
 Symbolic Rejection Artefacts
